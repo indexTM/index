@@ -54,13 +54,14 @@ $ sudo stop telegram # To stop it
 -----------------
   <I> thanx :</I>
 
-<B>[DBTeaM](https://telegram.me/DBTeam)
+<B>[Josepdal](https://telegram.me/Josepdal)
 
 
 [Mammothcode](https://telegram.me/Mammothcode)
 
 
 [FarsGeneral](https://telegram.me/FarsGeneral)
+
 
 [napson](https://telegram.me/napson)
 
