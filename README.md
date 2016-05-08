@@ -63,7 +63,7 @@ $ sudo stop telegram # To stop it
 [FarsGeneral](https://telegram.me/FarsGeneral)
 
 
-<Font color="Green" <[napson](https://telegram.me/napson)> />
+[napson](https://telegram.me/napson)
 
 
 [Radya](https://telegram.me/error_log)
