@@ -68,16 +68,16 @@ $ sudo stop telegram # To stop it
 [Radya](https://telegram.me/error_log)
 
 
-[محمد فاکر](https://telegram.me/black_hat_admin1)</B>
+[MamadFucker](https://telegram.me/mamadFucker)</B>
 
 -------------------
 
   <I> Sudo :</I>
 
-<B>[س.مرتضی](https://telegram.me/black_hat_admin02) ([@SuperDeveloper] (https://telegram.me/SuperDeveloper))
+<B>[Sed.Morteza](https://telegram.me/MasterTG) 
 
 
-[سد فاکر](https://telegram.me/black_hat_admin03) ([off] (https://telegram.me/off))</B>
+[SedFucker](https://telegram.me/SedFucker) ([off] (https://telegram.me/off))</B>
 
 -------------------
 
@@ -88,4 +88,8 @@ $ sudo stop telegram # To stop it
 -------------------
 <B>
  <I>:-D<I>
+</B>
+-------------------
+<B>
+Black Hat (Yadegari)
 </B>
