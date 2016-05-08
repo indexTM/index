@@ -78,7 +78,7 @@ $ sudo stop telegram # To stop it
 <B>[Sed.Morteza](https://telegram.me/MasterTG) 
 
 
-[SedFucker](https://telegram.me/SedFucker) ([off] (https://telegram.me/off))</B>
+[SedFucker](https://telegram.me/SedFucker)</B>
 
 -------------------
 
