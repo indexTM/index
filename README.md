@@ -51,10 +51,11 @@ $ sudo stop telegram # To stop it
 
 [suport Group Index](https://telegram.me/joinchat/DRVuDAjDa98OGV4UMRuFkw)</B>
 
------------------
+[![https://telegram.me/joinchat/DRVuDAjDa98OGV4UMRuFkw](https://img.shields.io/badge/%F0%9F%92%AC_Telegram-suport Group Index-blue.svg)](https://telegram.me/joinchat/DRVuDAjDa98OGV4UMRuFkw)
+--------------------
   <I> thanx :</I>
 
-<B>[Josepdal](https://telegram.me/Josepdal)
+[![https://telegram.me/Josepdal](https://img.shields.io/badge/%F0%9F%92%AC_Telegram-Josepdal-blue.svg)](https://telegram.me/Josepdal)
 
 
 [![https://telegram.me/Mammothcode](https://img.shields.io/badge/%F0%9F%92%AC_Telegram-Mammothcode-blue.svg)](https://telegram.me/Mammothcode)
@@ -62,17 +63,16 @@ $ sudo stop telegram # To stop it
 
 [![https://telegram.me/FarsGeneral](https://img.shields.io/badge/%F0%9F%92%AC_Telegram-FarsGeneral-blue.svg)](https://telegram.me/FarsGeneral)
 
+
 [![https://telegram.me/napson](https://img.shields.io/badge/%F0%9F%92%AC_Telegram-napson-blue.svg)](https://telegram.me/napson)
+
 
 [![https://telegram.me/error_log](https://img.shields.io/badge/%F0%9F%92%AC_Telegram-Radya-blue.svg)](https://telegram.me/error_log)
 
 
 [![https://telegram.me/MamadFucker](https://img.shields.io/badge/%F0%9F%92%AC_Telegram-MamadFucker-blue.svg)](https://telegram.me/MamadFucker)
 
-[MamadFucker](https://telegram.me/mamadFucker)</B>
-
-[![https://telegram.me/Josepdal](https://img.shields.io/badge/%F0%9F%92%AC_Telegram-Josepdal-blue.svg)](https://telegram.me/Josepdal)
--------------------
+----------------------
 
   <I> Sudo :</I>
 
@@ -83,18 +83,18 @@ $ sudo stop telegram # To stop it
 
 [![https://telegram.me/sedfucker](https://img.shields.io/badge/%F0%9F%92%AC_Telegram-سد فاکر-blue.svg)](https://telegram.me/sedfucker)
 
--------------------
+----------------------
 
   <I> Channel :</I>
    
  
 [![https://telegram.me/blackhatchannel](https://img.shields.io/badge/%F0%9F%92%AC_Telegram-channel-blue.svg)](https://telegram.me/blackhatchannel)
    
--------------------
+----------------------
 <B>
  <I>:-D<I>
 </B>
--------------------
+----------------------
 <B>
 Black Hat (Yadegari)
 </B>
