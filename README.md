@@ -57,35 +57,38 @@ $ sudo stop telegram # To stop it
 <B>[Josepdal](https://telegram.me/Josepdal)
 
 
-[Mammothcode](https://telegram.me/Mammothcode)
+[![https://telegram.me/Mammothcode](https://img.shields.io/badge/%F0%9F%92%AC_Telegram-Mammothcode-blue.svg)](https://telegram.me/Mammothcode)
 
 
-[FarsGeneral](https://telegram.me/FarsGeneral)
+[![https://telegram.me/FarsGeneral](https://img.shields.io/badge/%F0%9F%92%AC_Telegram-FarsGeneral-blue.svg)](https://telegram.me/FarsGeneral)
+
+[![https://telegram.me/napson](https://img.shields.io/badge/%F0%9F%92%AC_Telegram-napson-blue.svg)](https://telegram.me/napson)
+
+[![https://telegram.me/error_log](https://img.shields.io/badge/%F0%9F%92%AC_Telegram-Radya-blue.svg)](https://telegram.me/error_log)
 
 
-[napson](https://telegram.me/napson)
-
-
-[Radya](https://telegram.me/error_log)
-
+[![https://telegram.me/MamadFucker](https://img.shields.io/badge/%F0%9F%92%AC_Telegram-MamadFucker-blue.svg)](https://telegram.me/MamadFucker)
 
 [MamadFucker](https://telegram.me/mamadFucker)</B>
 
+[![https://telegram.me/Josepdal](https://img.shields.io/badge/%F0%9F%92%AC_Telegram-Josepdal-blue.svg)](https://telegram.me/Josepdal)
 -------------------
 
   <I> Sudo :</I>
 
 
-[![https://telegram.me/س.مرتضی](https://img.shields.io/badge/%F0%9F%92%AC_Telegram-س.مرتضی-blue.svg)](https://telegraInde/blue_hat) 
+[![https://telegram.me/blue_hat](https://img.shields.io/badge/%F0%9F%92%AC_Telegram-س.مرتضی-blue.svg)](https:/telegram.me/blue_hat) 
 
 
-[SedFucker](https://telegram.me/SedFucker)</B>
+
+[![https://telegram.me/sedfucker](https://img.shields.io/badge/%F0%9F%92%AC_Telegram-سد فاکر-blue.svg)](https://telegram.me/sedfucker)
 
 -------------------
 
   <I> Channel :</I>
    
- <B> [@BlackHatchannel](https://telegram.me/BlackHatchannel)</B>
+ 
+[![https://telegram.me/blackhatchannel](https://img.shields.io/badge/%F0%9F%92%AC_Telegram-channel-blue.svg)](https://telegram.me/blackhatchannel)
    
 -------------------
 <B>
